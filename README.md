@@ -1,1 +1,1 @@
-# Turkcell_Akademi_1.Hafta_-devi
+# Turkcell_Akademi_1.Hafta_Odevi
